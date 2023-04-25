@@ -1,4 +1,4 @@
-## Hi there, I'm Mahmood Reza 👋
+## Hi there, I'm Farid 👋
 
 - 💬 Ask me about anything!
 - 📫 How to reach me: [Email me](mailto:faridhaghgooyan@gmail.com) or [Linkedin DMs](https://www.linkedin.com/in/farid-haghgooyan/)!
